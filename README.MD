@@ -1,1 +1,0 @@
-https://github.com/shent57/ono-tebe-nado-ad 
